@@ -1,4 +1,4 @@
-**Identified Emotions from "Book One: Fear," *Native Son* **
+** Identified Emotions from "Book One: Fear," *Native Son* **
 
 Admiration (4)
 
